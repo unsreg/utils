@@ -1,0 +1,1 @@
+https://troubleshooter.xyz/wiki/solved-wifi-connected-but-no-internet-on-windows-10/
